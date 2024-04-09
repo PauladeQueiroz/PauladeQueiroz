@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PauladeQueiroz
-- 👀 I’m interested in ... Aprender programação nesse mundo
+- 👀 I’m interested in ... Aprender programação nesse mundo de meu Deus
 - 🌱 I’m currently learning ... Full Stack
 - 💞️ I’m looking to collaborate on ... Algo que de verdade possa mudar vidas de pessoas nesse mundo corporativo 
 - 📫 How to reach me ... paula.qg24@gmail.com
